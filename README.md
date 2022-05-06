@@ -13,6 +13,4 @@ les autres à ّ~~apprendre et à faire plus~~ s'ils voulaient vraiment apprendr
 
 ---
 
----
-
 ![Alt Text](https://media.giphy.com/media/EBWstFSor1WRTMnCeU/giphy.gif)
