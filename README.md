@@ -19,4 +19,3 @@ les autres à ّ~~apprendre et à faire plus~~ s'ils voulaient vraiment apprendr
 
 ## Ce genre de consignes
 Ils bravèrent le manque d'info volontaire de la part de leur coach qui vise à les pousser à la dépression, ou à apprendre par eux même, selon la vision de chacun. Il addhèrent, commiterent et pusherent comme jamais dans leur vie.
-
